@@ -1,0 +1,1 @@
+# appliedthoughts.github.io
